@@ -1,4 +1,7 @@
 alexrcoley.github.io
 ====================
 
-hello something more to follow
+hello. 
+
+something more to follow
+
